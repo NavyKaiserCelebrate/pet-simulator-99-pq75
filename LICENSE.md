@@ -1,4 +1,4 @@
-
+Get ahead in anime vanguards with new anime vanguards Script, featuring auto-farm and unlimited stamina. Download now to dominate every match with ease and confidence, thanks to
 
 
 
